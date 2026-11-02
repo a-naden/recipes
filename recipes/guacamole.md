@@ -7,4 +7,4 @@
 
 ## Instructions
 1. Slice avocado around pit.
-2. Drop the avocado by accident.
+2. Smash smash smash!!
