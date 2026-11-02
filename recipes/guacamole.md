@@ -8,3 +8,4 @@
 ## Instructions
 1. Slice avocado around pit.
 2. Smash smash smash!!
+3. Test the guacamole.
